@@ -1,5 +1,1 @@
-Hey Wakanda(or whatever the proper name for the hidden African nation is) its Mr Nimbus(not my real name though) again! 
-Yea about church? Totally not your style I get it. I now understand you  guys wouldn't want to compromise yourselves not even in the slightest.(Not even for an outsider like me!)Which does hurt.
-But I tell you what, since you guys are all about secrecy, I'll strike a deal(yea who am i to strike  a deal right?Even I'm laughing).But don't ignore this just yet. Pull up to my coordinates at 00:00 tonight(they're posted on the earlier file I made.) However, the house Im in has an alarm system(because it's my parents house), so I'm guessing 
-you're gonna have to use some tech magic to get inside my room so we can discuss. I'm aware you're currently now deciding whether to expose your tech to the outside world? Meh just a thought. Please come through tonight. Even press the button that's by my gate at 7Pm(in roughly 50 minutes and then return later on in the night! At least then,  I'll know 
-we'll be  in agreement. All I need is one shot. One chance. One opportunity to meet you guys and ask my questions and you ask me yours. That's all i need to impress you guys. Please, a chance is all I ask for. Remember me. Thank you.
+
